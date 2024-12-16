@@ -24,4 +24,4 @@ I hjärtat av Taverna möts tradition och förnyelse när restaurangen tar en ku
 
 Den nya atmosfären på Taverna är lika inbjudande som den delikata maten. Moderna detaljer smälter samman med rustika inslag för att skapa en avslappnad och trivsam stämning. Oavsett om du söker en intim familjemiddag eller en kväll i goda vänners lag kommer Taverna vara platsen för en smakfull upplevelse.
 
-Så håll ögonen öppna för den storslagna nyöppningen i början av 2024!
+Så håll ögonen öppna för den storslagna nyöppningen i början av 2025!
